@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on responsive websites, open-source projects, and beginner-friendly tech communities
 
-📫 How to reach me: subravbhande@gmail.com (or your preferred email)
+📫 How to reach me: subravbhande@gmail.com 
 
 😄 Pronouns: He/Him
 
